@@ -1,8 +1,8 @@
 ## 👋 Hi! I'm Claudia :sunflower:
 
 
-I'm a designer and junior developer from 🇸🇪. I'm currently working at [Accenture Song](https://www.accenture.com/se-en/about/accenture-song-index) where I wear a lot of 🎩s. <br/>
-Continously working on improving my craft. ✨ 
+I'm a designer and junior developer from 🇸🇪. I recently worked at [Accenture Song](https://www.accenture.com/se-en/about/accenture-song-index) where I wore a lot of 🎩s. <br/>
+After spending some time in Tokyo, I'm now open to new full-time opportunities in Europe. ✨ 
 
 ### Some tools I use :seedling:
 
